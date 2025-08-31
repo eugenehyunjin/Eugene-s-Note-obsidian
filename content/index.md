@@ -1,1 +1,1 @@
-# Welcome to Quartz
+# Eugene's Note Page
